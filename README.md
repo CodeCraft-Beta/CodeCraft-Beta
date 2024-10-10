@@ -5,16 +5,15 @@ I am making this Website Template.
 You can Download it here or also on my Website.
 
 
-**Live Demo** - 
-
 # Join Us
+
+**GitHub** - https://github.com/CodeCraft-Beta
+
 **Instagram** - 
 
 **Telegram** - 
 
 **Whatsapp** - 
-
-**GitHub** - https://github.com/CodeCraft-Beta
 
 **YouTube** - 
 
