@@ -9,6 +9,8 @@ You can Download it here or also on my Website.
 
 **GitHub** - https://github.com/CodeCraft-Beta
 
+**YouTube** - https://www.youtube.com/@codecraftchannal
+
 **Website** - Coming Soon
 
 **Instagram** - Coming Soon
@@ -16,8 +18,6 @@ You can Download it here or also on my Website.
 **Telegram** - Coming Soon
 
 **Whatsapp** - Coming Soon
-
-**YouTube** - Coming Soon
 
 # Introduction
 
