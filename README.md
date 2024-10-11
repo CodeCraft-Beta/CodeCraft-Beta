@@ -14,13 +14,13 @@ Thankyou.
 
 **YouTube** - https://www.youtube.com/@codecraftchannal
 
+**Whatsapp** - https://whatsapp.com/channel/0029Vamb48s8F2pC1zM2Gv0Z
+
 **Website** - Coming Soon
 
 **Instagram** - Coming Soon
 
 **Telegram** - Coming Soon
-
-**Whatsapp** - Coming Soon
 
 # Introduction
 
