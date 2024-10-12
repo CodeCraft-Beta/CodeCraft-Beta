@@ -16,11 +16,11 @@ Thankyou.
 
 **Whatsapp** - https://whatsapp.com/channel/0029Vamb48s8F2pC1zM2Gv0Z
 
+**Telegram**  - https://t.me/codecraft7
+
 **Website** - Coming Soon
 
 **Instagram** - Coming Soon
-
-**Telegram** - Coming Soon
 
 # Introduction
 
