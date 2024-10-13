@@ -18,9 +18,9 @@ Thankyou.
 
 **Telegram**  - https://t.me/codecraft7
 
-**Website** - Coming Soon
+**Instagram** - https://www.instagram.com/codecraft147/
 
-**Instagram** - Coming Soon
+**Website** - Coming Soon
 
 # Introduction
 
