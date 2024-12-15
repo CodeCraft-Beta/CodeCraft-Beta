@@ -22,7 +22,7 @@ Thankyou.
 
 **TikTok** - https://www.tiktok.com/@codecraft147
 
-**Website** - https://designcraft.odoo.com/
+**Website** - https://www.codecrafts.site/
 
 # Introduction
 
